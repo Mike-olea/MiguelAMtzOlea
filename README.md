@@ -1,2 +1,0 @@
-# MiguelAMtzOlea
-Curriculum Vitae
